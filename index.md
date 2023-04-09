@@ -1,6 +1,6 @@
 # Hi, I'm Steven!
 
-[CIF Conference Champion](/CIF.JPG)
+![CIF Conference Champion](/CIF.JPG)
 
 **Open-minded and eager to learn**
 
