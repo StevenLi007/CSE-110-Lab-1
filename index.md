@@ -1,5 +1,7 @@
 # Hi, I'm Steven!
 
+[CIF Conference Champion](/CIF.JPG)
+
 **Open-minded and eager to learn**
 
 Here is one of my favorite commercials quoted; I aspire to be the people it describes.
